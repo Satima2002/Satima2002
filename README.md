@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Satima2002
 - 👀 I’m interested in different things, but my dream is to become a game designer in Ryot games. 
-- 🌱 I’m currently learning programming and designing in the same time.
+
 
 
 <!---
