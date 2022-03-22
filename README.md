@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @Satima2002
-- 👀 I want to become the part of Ryot games.
+- 👋 Hi, I’m @Satima2002Cancel changes
+- 👀 
 
 
 
