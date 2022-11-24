@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Satima2002
-- 👀 Let's just start
+- 👀 Let's get started
 
 
 
